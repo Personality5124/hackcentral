@@ -1,2 +1,2 @@
 
-a shitty webpage for hacks and shit because fuck goguardian 🔥🗣️💯
+a shitty webpage for hacks and games because fuck goguardian 🔥🗣️💯
